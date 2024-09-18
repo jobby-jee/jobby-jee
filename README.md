@@ -1,6 +1,6 @@
 # Help Me Pursue My Dreams - Fundraising for Master's and PhD in Physics
 
-Hi, my name is **Eshaphro Job Elijah**, and I’m reaching out for your help. I’m in my final year of university, about to graduate with a first-class B.Sc in Physics, and I dream of continuing my education to earn both a Master's and PhD. However, financial challenges are standing in my way, and I need your support to make this dream a reality.
+Hi, my name is **Eshaphro Job Elijah**, and I’m reaching out for your help. I am currently in my final year in th university, nearing graduation with a first-class B.Sc in Physics. My aspiration is to continue my education by pursuing both a Master's and PhD. However, financial challenges are standing in my way, and I need your support to make this dream a reality.
 
 ## My Journey
 
